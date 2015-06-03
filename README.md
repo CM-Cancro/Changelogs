@@ -1,1 +1,1 @@
-## Changlogs for my and MrBaNkS Roms
+## Changelogs for my and MrBaNkS Roms
